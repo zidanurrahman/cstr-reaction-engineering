@@ -91,5 +91,5 @@ CSTRs are widely used in **organic compound synthesis and polymer production** â
 
 ---
 
-*Zid | Independent Chemical Engineering Study | 2025*
+*Zidanur Rahman| Independent Chemical Engineering Study | 2025*
 *Prepared as part of Romanian Government Scholarship application*
